@@ -1,0 +1,2 @@
+# YCS
+Your Country Sucks
